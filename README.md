@@ -1,4 +1,11 @@
-## Hi there 👋
+olá, seja bem vindo ao meu perfil.
+eu me chamo Weslei, sou estudante do colégio Morelli.
+Gosto de jogar video game, gosto de jogar futebol, 
+sou fã do CR7.
+![](https://images.app.goo.gl/YemZ6irJyaXhgrHB8)
+
+
+
 
 <!--
 **wesleisilva10/wesleisilva10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
