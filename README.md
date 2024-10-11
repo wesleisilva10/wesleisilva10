@@ -4,7 +4,7 @@ Gosto de jogar video game, gosto de jogar futebol,
 sou fã do CR7 e Neymar Jr 10.
 
 
-![](https://cdn.vidas.pt/images/2019-11/img_1200x1200$2019_11_15_10_30_42_144609$cp$20191115105038357.jpg)
+![](https://editorial.uefa.com/resources/0290-1bb5efad911e-34663507a72c-1000/format/wide1/cristiano_ronaldo_with_ucl_trophy_photo.jpeg?imwidth=2048)
 
 
 
