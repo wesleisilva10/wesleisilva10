@@ -1,6 +1,11 @@
-olá, seja bem vindo ao meu perfil.
+olá, seja bem vindo ao meu perfil,
+
+estudo no alura
+
 eu me chamo Weslei, sou estudante do colégio Morelli.
+
 Gosto de jogar video game, gosto de jogar futebol, 
+
 sou fã do CR7 e Neymar Jr 10.
 
 
