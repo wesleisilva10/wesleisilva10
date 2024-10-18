@@ -7,5 +7,5 @@ sou fã do CR7 e Neymar Jr 10.
 ![](https://editorial.uefa.com/resources/0290-1bb5efad911e-34663507a72c-1000/format/wide1/cristiano_ronaldo_with_ucl_trophy_photo.jpeg?imwidth=2048)
 
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSQbs6Evl1lDY0MRaV2IAeBejy7K88Y7tR5VQ&s)
+![](https://www.fcbarcelona.com/fcbarcelona/photo/2024/03/08/3983f5e0-d7fc-4fdf-8908-d7f9d513ce5b/NEYMAR.JPG)
 
