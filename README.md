@@ -1,13 +1,12 @@
-olá, seja bem vindo ao meu perfil,
+olá, seja bem vindo ao meu perfil, me chamo é weslei 
 
 estudo no alura
 
-eu me chamo Weslei, sou estudante do colégio Morelli.
+estudo atualmente no Colégio Padre Claudio Morelli
 
-Gosto de jogar video game, gosto de jogar futebol, 
+gosto de jogar futebol, meus jogadores preferidos sao CR7 e Neymar Jr.
 
-sou fã do CR7 e Neymar Jr 10.
-
+weslei.saldanha.silva@escola.pr.gov.br
 
 ![](https://editorial.uefa.com/resources/0290-1bb5efad911e-34663507a72c-1000/format/wide1/cristiano_ronaldo_with_ucl_trophy_photo.jpeg?imwidth=2048)
 
