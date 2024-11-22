@@ -4,6 +4,8 @@ estudo no alura
 
 estudo atualmente no Colégio Padre Claudio Morelli
 
+estou interessado em aprender a mexer com computador e aprender novas tecnologias.
+
 gosto de jogar futebol, meus jogadores preferidos sao CR7 e Neymar Jr.
 
 weslei.saldanha.silva@escola.pr.gov.br
